@@ -1,0 +1,1 @@
+Onezero miner
